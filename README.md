@@ -1,1 +1,1 @@
-# Sinophobic-Behavior-on-Social-Media
+# Xenophobic-Behavior-on-Social-Media
